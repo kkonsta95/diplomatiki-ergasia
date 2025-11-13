@@ -5,6 +5,8 @@
 
 https://www-sciencedirect-com.proxy.eap.gr/science/article/pii/S0261517704002213
 
+Το ευρύ πεδίο εφαρμογής του τουρισμού ειδικών ενδιαφερόντων καθιστά δύσκολο να δοθεί ένας συγκεκριμένος ορισμός για αυτόν https://revistas.rcaap.pt/millenium/article/view/13511/10497
+
 
 
 
