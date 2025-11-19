@@ -44,3 +44,7 @@ https://www.synigoros.gr/el/category/ekdoseis-ek8eseis/post/eidikh-ek8esh-2024-o
 ΔΙΕΡΕΥΝΗΣΗ ΤΗΣ ΕΜΠΕΙΡΙΑΣ ΤΩΝ ΕΠΙΣΚΕΠΤΩΝ
 
 Στο κεφάλαιο αυτό θα γίνει προσπάθεια διερεύνησης της τουριστικής εμπειρίας των πολιτιστικών τουριστών, μέσω βιβλιογραφικής ανασκόπησης. https://www.tandfonline.com/doi/full/10.1080/1743873X.2019.1639717
+
+Ο πολιτιστικός τουρισμός
+
+Οι σύχρονες τουριστικές τάσεις δίνουν έμφαση στην πολιτιστική εμπειρία ως βάση για την ικανοποίηση των επισκεπτών και τη διοργάνωση ενός πιο ευχάριστου ταξιδιού. https://www.researchgate.net/publication/356679751_The_Relationship_between_Cultural_Tourist_Experience_and_Recommendation_Intention_Empirical_Evidence_from_Montenegr
