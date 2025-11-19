@@ -43,7 +43,7 @@ https://www.synigoros.gr/el/category/ekdoseis-ek8eseis/post/eidikh-ek8esh-2024-o
 
 ΔΙΕΡΕΥΝΗΣΗ ΤΗΣ ΕΜΠΕΙΡΙΑΣ ΤΩΝ ΕΠΙΣΚΕΠΤΩΝ
 
-Στο κεφάλαιο αυτό θα γίνει προσπάθεια διερεύνησης της τουριστικής εμπειρίας των πολιτιστικών τουριστών, μέσω βιβλιογραφικής ανασκόπησης. https://www.tandfonline.com/doi/full/10.1080/1743873X.2019.1639717
+Στο κεφάλαιο αυτό θα γίνει προσπάθεια διερεύνησης της τουριστικής εμπειρίας των πολιτιστικών τουριστών, μέσω βιβλιογραφικής ανασκόπησης. https://www.tandfonline.com/doi/full/10.1080/1743873X.2019.1639717 Τα πολιτιστικά προγράμματα, εφόσον σχεδιαστούν και υλοποιηθούν σωστά, αυξάνουν την ικανοποίηση των επισκεπτών, και την πρόθεσή τους να επισκεφθούν εκ νέου τον τουριστικό προορισμό. https://www.researchgate.net/publication/356679751_The_Relationship_between_Cultural_Tourist_Experience_and_Recommendation_Intention_Empirical_Evidence_from_Montenegr
 
 https://journal.uii.ac.id/AMBR/article/view/32659/16474
 
