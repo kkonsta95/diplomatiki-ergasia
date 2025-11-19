@@ -39,3 +39,6 @@ https://insete.gr/blog_news/%ce%bf%ce%bc%ce%b9%ce%bb%ce%af%ce%b1-%ce%b9%ce%ba%ce
 Η μελέτη που εκπονήθηκε για τον ελληνικό τουρισμό το 2030, κάνει λόγω, μεταξύ άλλων, και για τουριστικά "Megatrends". Τα megatrends πρόκειται για τις τάσεις που θα διαμορφώσουν τα τουριστικά δρώμενα στο μέλλον σε παγκόσμιο επίπεδο. Μεταξύ άλλων, γίνεται λόγος για τη βιωσιμότητα στον τουρισμό, η οποία περιλαμβάνει και τη διατήρηση της πολιτιστικής κληρονομιάς. https://insete.gr/wp-content/uploads/2021/12/Megatrends.pdf
 
 https://www.synigoros.gr/el/category/ekdoseis-ek8eseis/post/eidikh-ek8esh-2024-or-biwsimh-toyristikh-anapty3h:-plaisio-ypodomes-poroi
+
+
+ΔΙΕΡΕΥΝΗΣΗ ΤΗΣ ΕΜΠΕΙΡΙΑΣ ΤΩΝ ΕΠΙΣΚΕΠΤΩΝ
