@@ -45,6 +45,8 @@ https://www.synigoros.gr/el/category/ekdoseis-ek8eseis/post/eidikh-ek8esh-2024-o
 
 Στο κεφάλαιο αυτό θα γίνει προσπάθεια διερεύνησης της τουριστικής εμπειρίας των πολιτιστικών τουριστών, μέσω βιβλιογραφικής ανασκόπησης. https://www.tandfonline.com/doi/full/10.1080/1743873X.2019.1639717
 
+https://journal.uii.ac.id/AMBR/article/view/32659/16474
+
 Ο πολιτιστικός τουρισμός
 
 Οι σύχρονες τουριστικές τάσεις δίνουν έμφαση στην πολιτιστική εμπειρία ως βάση για την ικανοποίηση των επισκεπτών και τη διοργάνωση ενός πιο ευχάριστου ταξιδιού. Η διοργάνωση πολιτιστικών εμπειριών προσφέρει όχι μόνο αυθεντικότητα στις τουριστικές εμπειρίες, αλλά και ένα διαφοροποιημένο τουριστικό προιον. https://www.researchgate.net/publication/356679751_The_Relationship_between_Cultural_Tourist_Experience_and_Recommendation_Intention_Empirical_Evidence_from_Montenegr
